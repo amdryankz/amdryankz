@@ -6,7 +6,7 @@
   
 - 📫 Feel free to reach me out **ahmad.chairiansyah@gmail.com**
 
-- 💼 Portfolio : **https://www.amd-ryankz.web.id**
+- 💻 View my portfolio **https://www.amd-ryankz.web.id**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
